@@ -31,6 +31,8 @@ A focused path from idea to something real users can touch. We prioritize speed,
 
 If you are exploring consulting, a full build, or a rapid MVP to validate an idea, **Tordoide Solutions** would like to hear what you are working on.
 
+- **Email:** [tordoidesolutions@gmail.com](mailto:tordoidesolutions@gmail.com?subject=Project%20inquiry%20-%20Tordoide%20Solutions&body=Hi%20Team,%2C%0D%0A%0D%0AI%20am%20reaching%20out%20regarding%3A%0D%0A%0D%0A%0D%0ABrief%20summary%20of%20what%20I%20need%3A%0D%0A%0D%0A%0D%0AThanks%2C%0D%0A)  
+- **Facebook:** [facebook.com/tordoide](https://www.facebook.com/tordoide)  
 - **GitHub:** [github.com/tordoide](https://github.com/tordoide)
 
 ---
